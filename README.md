@@ -8,7 +8,7 @@ Spend less time worrying about managing a website and citations, and more time r
 
 👇👇 **Get Started** 👇👇
 
-[**Documentation**](https://greene-lab.gitbook.io/lab-website-template-docs)
+[**Documentation**](https://https://actrec.gov.in/dr-nandini-verma)
 
 ## Key Features
 
